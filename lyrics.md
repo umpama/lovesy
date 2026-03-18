@@ -1,17 +1,17 @@
-loves to the window
-loves to the window
-loves to the window
-loving to windows
+Loves to the window <br>
+Loves to the window <br>
+Loves to the window <br>
+Loving to windows <br>
 
-wildin', wilding out with cloud of clove around my fingertips
-slidin, sliding out we fought for thoughts an eclipse
+Wildin', wilding out with cloud of clove around my fingertips <br>
+slidin, sliding out we fought for thoughts an eclipse <br>
 
-they see nothing is a good way to see me die
-you've had has been dying lately last night
-can they tell me when i was wrong?
-wakes me, wake up to me when you're gone
+They see nothing is a good way to see me die <br>
+You've had has been dying lately last night <br>
+Can they tell me when I was wrong? <br>
+Wakes me, wake up to me when you're gone <br>
 
-loves to the window
-loves to the window
-loves to the window
-loving to windows
+Loves to the window <br>
+Loves to the window <br>
+Loves to the window <br>
+Loving to windows <br>
